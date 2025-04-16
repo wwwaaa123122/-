@@ -5,4 +5,4 @@
 ![无法加载](https://wwwaaa123122.cn-nb1.rains3.com/mmexport988ed7bb5b37cbf8a1970af8d2cbf923_1744529812508.jpeg)
 
 * 我的QQ主页
-[点我跳转](http://wpa.qq.com/msgrd?v=3&uin=3385016019&site=qq&menu=yes)
+[点我跳转](mqqwpa://im/chat?chat_type=wpa&uin=3385016019)
