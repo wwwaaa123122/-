@@ -1,5 +1,13 @@
-# 帮帮我😭
-
-* [链接](https://act.mihoyo.com/sr/event/e20250409album-ywl2vf/index.html?inviter=CAFZQBDKXN&mhy_presentation_style=fullscreen&mhy_landscape=true&mhy_hide_status_bar=true&mhy_auth_required=true&utm_source=share&utm_medium=link&utm_campaign=web)
-
-![无法加载](https://wwwaaa123122.cn-nb1.rains3.com/mmexport988ed7bb5b37cbf8a1970af8d2cbf923_1744529812508.jpeg)
+#蔚蓝档案
+[第一集](https://wwwaaa123122.cn-nb1.rains3.com/uploads/2025/05/03/cxru5Wx2_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC1%E8%AF%9D%EF%BC%9A%E9%98%BF%E6%8B%9C%E5%A4%9A%E6%96%AF%E9%AB%98%E7%AD%89%E5%AD%A6%E9%99%A2%E5%81%9C%E5%8A%9E%E5%AF%B9%E7%AD%96%E5%A7%94%E5%91%98%E4%BC%9A.mp4)
+[第二集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/omv7jqQp_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC2%E8%AF%9D%EF%BC%9A%E6%88%91%E4%B8%8D%E5%90%8C%E6%84%8F%EF%BC%81.mp4)
+[第三集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/Ff8yaVFz_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC3%E8%AF%9D%EF%BC%9A%E8%AF%B7%E4%BA%A4%E7%BB%99%E4%BE%BF%E5%88%A9%E5%B1%8B68%E5%90%A7%EF%BC%81.mp4)
+[第四集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/3ldxUBM7_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC4%E8%AF%9D%EF%BC%9A%E8%92%99%E9%9D%A2%E6%B3%B3%E8%A3%85%E5%9B%A2%E2%98%86.mp4)
+[第五集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/fLPlJJOA_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC5%E8%AF%9D%EF%BC%9A%E6%89%8D%E4%B8%8D%E6%98%AF%E4%BB%80%E4%B9%88%E6%9C%8B%E5%8F%8B%EF%BC%81.mp4)
+[第六集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/ubMmDdv4_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC6%E8%AF%9D%EF%BC%9A%E6%AD%8C%E8%B5%AB%E5%A8%9C%E9%A3%8E%E7%BA%AA%E5%A7%94%E5%91%98%E4%BC%9A.mp4)
+[第七集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/kG1sV9hI_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC7%E8%AF%9D%EF%BC%9A%E5%94%AF%E6%9C%89%E5%89%8D%E8%BF%9B%E2%80%A6%E2%80%A6.mp4)
+[第八集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/ngi1ofC0_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC8%E8%AF%9D%EF%BC%9A%E7%A7%98%E5%AF%86.mp4)
+[第九集]([https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/TT8kvN4P_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC11%E8%AF%9D%EF%BC%9A%E5%9B%A0%E4%B8%BA%E5%A5%B9%E6%98%AF%E6%88%91%E7%9A%84%E5%AD%A6%E5%91%98.mp4](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/KypqB1zO_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC9%E8%AF%9D%EF%BC%9A%E5%89%8D%E5%BE%80%E9%98%BF%E6%8B%9C%E5%A4%9A%E6%96%AF%E6%B2%99%E6%BC%A0.mp4))
+[第十集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/oPlZEPY9_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC10%E8%AF%9D%EF%BC%9A%E5%94%AF%E4%B8%80%E6%9C%89%E6%84%8F%E4%B9%89%E7%9A%84%E5%9C%B0%E6%96%B9.mp4)
+[第十一集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/TT8kvN4P_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC11%E8%AF%9D%EF%BC%9A%E5%9B%A0%E4%B8%BA%E5%A5%B9%E6%98%AF%E6%88%91%E7%9A%84%E5%AD%A6%E5%91%98.mp4)
+[第十二集](https://cn-nb1.rains3.com/wwwaaa123122/uploads/2025/05/03/rqc4zJvh_%E3%80%8A%E8%94%9A%E8%93%9D%E6%A1%A3%E6%A1%88The%20Animation%E3%80%8B%E7%AC%AC12%E8%AF%9D%EF%BC%9A%E6%88%91%E5%9B%9E%E6%9D%A5%E4%BA%86.mp4)
